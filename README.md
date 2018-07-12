@@ -112,3 +112,14 @@ Today I didn't even have to use my A.K.
 I got to say it was a good day
 Hey wait, wait a minute fool stop the shit
 What the fuck am I thinking about?
+
+
+Hey you don't know what rap is, until you know what switchmap is 
+Ask Shai, from that show - he was starrin' - that other guy too - Pete Bacon-Darwin 
+They down with it - don't be no haters - you gotta learn your operators
+Be a creator, not a waiter, or an async-awaiter
+It won't work in ie 11 or Netscape navigator
+And install it on Windows if you an Administrator 
+Just 'ng new' it's easy as, don't need no razzmataz to get pizzazzz 
+Now play some music. 
+That's Jazz.
